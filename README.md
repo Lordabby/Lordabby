@@ -10,3 +10,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: https://twitter.com/Abiola_158
 - 😄 Pronouns: (He/His/Him)
 - ⚡ Fun fact: 3rd Year Pharm.Undergrad.
+- Thanks.
